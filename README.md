@@ -39,9 +39,9 @@ other philosophical and spiritual perspectives, including:
   of transcendence and cosmic order
 - **Yazidism**, as an ancient spiritual tradition with its own
   internal integrity and depth
-- **Spiritual or symbolic Satanism**, when understood as an
+- **Spiritual Satanism**, when understood as an
   individual, non-violent, non-sectarian path focused on
-  autonomy, ethics, and self-reflection
+  autonomy, ethics, and self-reflection, i dont support ONA, JoS, MLO, and other they are opponents of true Satanism
 
 At the same time, I explicitly reject **sectarian or organizational
 forms of Satanism** that revolve around cruelty, extremism,
