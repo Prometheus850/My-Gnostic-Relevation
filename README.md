@@ -39,15 +39,6 @@ other philosophical and spiritual perspectives, including:
   of transcendence and cosmic order
 - **Yazidism**, as an ancient spiritual tradition with its own
   internal integrity and depth
-- **Spiritual Satanism**, when understood as an
-  individual, non-violent, non-sectarian path focused on
-  autonomy, ethics, and self-reflection, i dont support ONA, JoS, MLO, and other they are opponents of true Satanism
-
-At the same time, I explicitly reject **sectarian or organizational
-forms of Satanism** that revolve around cruelty, extremism,
-violence, or the instrumentalization of human beings
-(e.g. closed groups that function through shock, abuse,
-or ideological control).
 
 ## Individual responsibility
 Gnosis is personal.
