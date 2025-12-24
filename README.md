@@ -60,6 +60,9 @@ I embrace veganism not merely as a diet, but as an ethical and spiritual commitm
 ### Why This Matters
 This aligns with the fundamental Gnostic principle of liberation from practices that increase suffering and distance one from inner clarity. Respect for life is respect for truth and consciousness, not mechanical consumption or domination. Such an attitude towards living beings helps maintain clarity of spirit and reduces participation in harm. ([Wikipedia](https://en.wikipedia.org/wiki/Veganism))
 
+## Substances and Self-Control
+I approve the use of marijuana in moderation, respecting its ability to relax and expand consciousness. Alcohol is allowed only in moderation, as excess weakens the body and clouds the mind. Smoking and other harmful habits are rejected entirely, as they detract from clarity and inner development.
+
 ### Rejecting Smoking and Harmful Habits
 I reject smoking and similar habits that damage the body and scatter the mind. These practices weaken the body, reduce the capacity for clear perception of reality, and act as a form of dependency that diverts attention from inner development. This aligns with the idea of self-mastery and liberation from mechanisms that weaken both spirit and body simultaneously. ([Vegan Journal](https://vegjournal.com/filosofiya/tochka-zreniya/593-mozhet-li-vegan-byt-kurilshchikom.html
 
